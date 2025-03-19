@@ -13,7 +13,7 @@ As Signals Operator, these devices will employ Frequencies under the UK Simple L
 
 #### This all looks like LARPing nonesense.
 
-First of all that's not a question. Second, yea, kinda? The primary use of these devices is in Airsoft skirmishes and Milsim events, it's going to look vaguel like someone writing Tom Clancy fanfiction, but with sprinlings of interesting Signals stuff.
+First of all that's not a question. Second, yea, kinda? The primary use of these devices is in Airsoft skirmishes and Milsim events, it's going to look vaguely like someone writing Tom Clancy fanfiction, but with sprinklings of interesting Signals stuff.
 
 #### This all still seems like roleplaying to me.
 
